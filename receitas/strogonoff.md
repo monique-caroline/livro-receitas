@@ -13,7 +13,7 @@
  
  ### Modo de Preparo
  
- - Em uma panela a fogo médio, acrescente o óleo e o caldo de galinha e dissolva o caldo. logo em seguida coloque o frango pucado em cubos na panela e deixe cozinhar. cuidado para não queimasr!
+ - Em uma panela a fogo médio, acrescente o óleo e o caldo de galinha e dissolva o caldo. logo em seguida coloque o frango pucado em cubos na panela e deixe cozinhar. Cuidado para não queimar!
  - Quando o frango estiver cozido, ac rescente o molho de tomate, a mostarda e o champignon.
  - Em fogo baixo acrescente o creme de leite e mexa bem até ficar um creme homogêneo.
  - Prontinho, agora é só servir!
